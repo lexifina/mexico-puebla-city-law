@@ -1,0 +1,1 @@
+Artículo 265 fracción VII Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 115 Usar dispositivos electrónicos visuales o realizar alguna otra actividad que provoque su distracción o ponga en peligro la seguridad de los pasajeros y terceros.

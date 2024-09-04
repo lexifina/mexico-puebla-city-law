@@ -1,0 +1,2 @@
+Artículo 326 fracciones II y VIII Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 98 Estacionarseamenosde10metrosd eesquinasquenotengan limitación marcada, de un hidrante o toma de agua, de un letrero de alto o de una señal de control de la entrada de bomberos, tránsito o policía.
+Artículos 323 fracción IV, 326 fracciones III, XI, XIII, XIV Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 99 Estacionarse frente a una entrada o salida de vehículos causando molestias.

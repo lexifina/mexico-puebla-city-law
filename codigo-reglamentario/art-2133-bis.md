@@ -1,0 +1,2 @@
+Artículo 2133 Bis. - En todo programa que presenten las Empresas para su aprobación, deberán figurar dos peleas de emergencia; una para las preliminares y otra para la semifinal. Es obligación de las Empresas utilizar los servicios de los boxeadores contratados como emergentes, en la función inmediata posterior, de igual categoría que lleven a cabo, si no fueran utilizados sus servicios en la de la fecha.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

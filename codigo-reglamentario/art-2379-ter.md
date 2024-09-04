@@ -1,0 +1,2 @@
+Artículo 2379 Ter. Corresponde a la Secretaría de Bienestar y Participación Ciudadana y/o la Dependencia encargada del Desarrollo Social en el Municipio, y Protección Civil Municipal, observar el cumplimiento, en sus respectivos ámbitos de competencia, de conformidad con las Leyes Generales y normatividad jurídica aplicable en materia de prestación de servicios para la atención y desarrollo integral infantil.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2021)

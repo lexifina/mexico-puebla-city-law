@@ -1,0 +1,1 @@
+Artículo 326 fracción I Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 97 Estacionarse en el cruce o zona de peatones, como en las orejas delimitadas por pintura a manera de señalamiento horizontal.

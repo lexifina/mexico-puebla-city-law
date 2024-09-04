@@ -1,0 +1,1 @@
+Artículo 294 fracciones IV y X Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 33 Circular a mayor velocidad de los límites establecidos o marcados en los señalamientos.

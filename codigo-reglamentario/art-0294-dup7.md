@@ -1,0 +1,1 @@
+Artículo 294 fracción V Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 39 Conducir usando cualqu ier instrumento que pueda distraer al conductor y ponga en riesgo la seguridad de los pasajeros y peatones.

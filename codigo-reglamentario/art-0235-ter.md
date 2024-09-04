@@ -1,0 +1,3 @@
+Artículo 235 Ter.- Se deroga.
+(ADICIONADO, P.O. 25 DE MAYO D E 2012) (REFORMADO, P.O. 05 DE JULIO DE
+2021)

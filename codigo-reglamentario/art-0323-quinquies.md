@@ -1,0 +1,2 @@
+Artículo 323 Quinquies.- Al vehículo o remolque que no hubiera sido registrado para el uso del Estacionamiento Rotativo y habiendo sido infraccionado o que por tal motivo se haya inmovilizado el vehículo dentro de las veinticuatro horas posteriores, se procederá a su retiro e ingreso al Depósito de Vehículos correspondiente, independientemente de haber sido sancionado en términos del presente Código. Los gastos ocasionados por dicho traslado serán pagados por el infractor.
+(REFORMA P.O. 30 DE DICIEMBRE DE 2022)

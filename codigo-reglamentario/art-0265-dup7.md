@@ -1,0 +1,1 @@
+Artículo 265 fracción VIII Multa del equivalente al valor d iario de 12 a 20 unidades de medida y actualización 116 Carecer de rejillas sobre las ventanillas en los vehículos destinados al transporte escolar.

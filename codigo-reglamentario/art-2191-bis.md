@@ -1,0 +1,2 @@
+Artículo 2191 Bis. - El peso de los boxeadore s se verificará con toda exactitud estando únicamente en calzoncillo, y sólo se permitirá estar presentes a dicha ceremonia de pesaje al Comisionado en turno, el Jefe del Servicio Médico o el auxiliar que haya designado, el Secretario de la Comisión, el re presentante de la Empresa, los representantes de los boxeadores y los periodistas y fotógrafos de prensa que lo soliciten.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

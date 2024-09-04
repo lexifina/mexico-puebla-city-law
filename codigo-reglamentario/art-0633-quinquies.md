@@ -1,0 +1,7 @@
+Artículo 633 Quinquies.- Las visitas de verificación e inspección se iniciarán mediante orden fundada y motivada, suscrita por la Unidad de Normatividad y Regulación Comercial y deberá contener además de lo previsto en el Código Fiscal y Presupuestario para el Municipio de Puebla, lo siguiente:
+I. La autoridad que emite la orden;
+II. Lugar o lugares donde deba efectuarse la visita de verificación o inspección;
+III. El nombre o razón social de la persona titular de la Licencia d e Funcionamiento registrada ante las autoridades fiscales; cuando se ignore el nombre de la persona que deba ser visitada, se señalarán datos suficientes que permitan su identificación;
+IV. El nombre y cargo de la persona o personas que practicarán la vis ita, las cuales podrán ser sustituidas, aumentadas o reducidas en su número, en cualquier tiempo por la autoridad competente. La sustitución o aumento de las personas designadas para .
+efectuar la visita la podrán hacer conjunta o separadamente; notificándos e a la persona visitada de conformidad con el presente ordenamiento; y V. El objeto de la visita y en su caso el periodo a que deberá limitarse, expresando la fecha de inicio y terminación de la misma.
+No será requisito precisar el objeto de la orden de visita de verificación o inspección, cuando se trata de sujetos pasivos clandestinos que realicen actividades sin contar con las autorizaciones que prevén los ordenamientos aplicables.

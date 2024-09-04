@@ -1,0 +1,1 @@
+Artículo 293 Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 61 Seguir o igualar a un vehículo de bomberos u otro que sea de servicio de emergencia, cuando lleven las sirenas encendidas.

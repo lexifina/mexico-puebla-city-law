@@ -1,0 +1,1 @@
+Artículo 314 fracción IV Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 60 No conservar una distancia razonable o mayor del margen inferior, entre su vehículo y el que circule delante.

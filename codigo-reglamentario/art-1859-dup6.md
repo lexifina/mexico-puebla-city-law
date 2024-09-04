@@ -1,0 +1,1 @@
+Artículo 1859 Fracción VII 23. Por ocasionar, maltrato, fatiga extrema, inseguridad, condiciones antihigiénicas, aglomeración excesiva y carencia de descanso, agua o alimento durante el transporte de animales.

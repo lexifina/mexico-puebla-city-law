@@ -1,0 +1,3 @@
+Artículo 2134 Ter. - No podrá ser cambiada la pelea estrella o alguno de los boxeadores que participen en la misma después de aprobado el programa por la Comisión, y de que este se haya hecho del conocimiento del público, por anuncios, programas de mano o por cualquier otro medio publicitario.
+Solamente en casos de excepción, y por circunstancias perfectamente justificadas, podrán autorizarse los cambios a que se refiere él párrafo anterior, con setenta y dos horas de anticipación contadas a partir de aquélla en que deba efectuarse el peso de los boxeadores que van a tomar parte en la función correspondiente.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

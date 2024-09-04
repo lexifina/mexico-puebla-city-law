@@ -1,0 +1,2 @@
+Artículo 2141 Quáter.- El Comisionado en turno nombrará, para las funciones de Box que vaya a presidir, con la debida oportunidad, los siguientes oficiales: dos jueces, dos árbitros, uno para los eventos preliminares y otro para los semi -finales y estelares, un tomador de tiempo y un anunciador; estas designaciones se harán quince minutos antes de que dé comienzo la función.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

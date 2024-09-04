@@ -1,0 +1,2 @@
+Artículo 2379 Quater. Corresponde a la Secretaría de Bienestar y Participación Ciudadana y/o la Dependencia encargada del Desarrollo Social en el Municipio, impulsar Programas en materia de prestación de servicios para la atención, cuidado y desarrollo integral infantil, en términos de las Reglas de Operación y Lineamientos que se aprueben para tal efecto.
+(ADICIONDAO, P.O. 31 DE DICIEMBRE DE 2021)

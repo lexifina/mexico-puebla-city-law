@@ -1,0 +1,3 @@
+Artículo 304 fracción II, inciso f ), y fracción III Multa del equivalente al valor diario de 80 a 100 unidades de medida y actualización 141 Circular en carriles de contraflujo y de uso exclusivo del transporte público masivo RUTA.
+Artículos 265 fracción X y 303 Multa del equivalente al valor diario de 80 a 100 unidades de medida y actualización 142 Obstruir terminales, paraderos y terminales de transferencia del transporte masivo RUTA.
+Artículos 294 fracción XXII y 326 fracción XVII Multa del equivalente al valor diario de 80 a 100 unidades de medida y actualización 143 No respetar las señales del semáforo del sistema de transporte público masivo RUTA.

@@ -1,0 +1,3 @@
+Artículo 2134 Quáter. - Cualquier cambio de última hora en el programa autorizado, que no haya sido posible anunciar previamente al público, al comenzar el espectáculo deberá hacerse del conocimiento del mismo por conducto del anunciador oficial o por algún medio que se juzgue adecuado.
+En caso de que algún espectador no estuviera conforme con el cambio, podrá reclamar de manera inmediata la devolución del importe de su boleto. Las Empresas tendrán la obligación de fijar avisos en las taquillas y en las puertas de entrada del establecimiento, el cambio que haya sido autorizado por el Comisionado en turno.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

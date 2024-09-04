@@ -1,0 +1,1 @@
+Artículo 349 fracciones II y III Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 134 Omitir la limpieza y cuidados necesarios de las aceras o camellones correspondientes a los lugares autorizados en la vía pública para bases o sitios.

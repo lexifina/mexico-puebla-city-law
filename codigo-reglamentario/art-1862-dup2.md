@@ -1,0 +1,1 @@
+Artículo 1862 Fracción II 4. A las personas físicas o morales que se dediquen a la cría, venta o adiestramiento de animales, que no tenga sus instalaciones en buenas condiciones higiénico - sanitarias.

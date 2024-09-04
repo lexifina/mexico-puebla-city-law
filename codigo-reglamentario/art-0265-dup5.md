@@ -1,0 +1,1 @@
+Artículo 265 fracción V Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 114 En el caso de vehículos destinados al transporte público, romper el cordón de circulación o rebasarse entre sí, sin causa justificada.

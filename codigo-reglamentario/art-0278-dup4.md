@@ -1,0 +1,1 @@
+Artículo 278 fracción III Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 11 Alterar o destruir indebidamente, de forma parcial o total, las placas, calcomanías, tarjetas, permisos de circulación, número de motor o de chasis; omitir notificar su pérdida a la autoridad correspondiente o no realizar los trámites relativos a sureposición.

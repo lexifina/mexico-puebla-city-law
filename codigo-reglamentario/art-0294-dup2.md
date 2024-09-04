@@ -1,0 +1,1 @@
+Artículo 294 fracción XVI Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 4 Usar en vehículos particulares, colores y/o imágenes reservadas para instituciones públicas y de servicio de transporte público y mercantil.

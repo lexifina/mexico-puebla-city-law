@@ -1,0 +1,2 @@
+Artículo 323 Sexdecies. - Los vehículos de más de 3.5. Toneladas, sean autobuses o vehículos de carga, no podrán estacionarse en ningún lugar del perímetro del estacionamiento rotativo en los horarios de funcionamiento del mismo, en su defecto, aún se hubiesen registrado, les será aplicada la infracció n correspondiente por parte de las personas Supervisores de Movilidad.
+(ADICIÓN P.O. 30 DE DICIEMBRE DE 2022)

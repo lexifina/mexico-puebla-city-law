@@ -1,0 +1,1 @@
+Artículo 1862 Fracción III 5. A las personas físicas o morales que se dediquen a la cría, venta o adiestramiento de animales, que vendan sin estar desparasitados y libres de toda enfermedad, con la documentación expedida por un médico veterinario con cédula profesional. Así como por no entregar calendarios de desparasitación y vacunación correspondientes.

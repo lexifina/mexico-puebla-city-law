@@ -1,0 +1,1 @@
+Artículo 265 fracción IV Multa del equivalente al valor diario de 80 a 100 unidades de medida y actualización 113 Llevar pasajeros en el exterior del vehículo o permitir que viajen en lugares no permitidos.

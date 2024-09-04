@@ -1,0 +1,1 @@
+Artículo 312 Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 57 No ceder el paso a los vehículos que se desplacen sobre rieles o de servicios de ambulancias, policía, tránsito, bomberos y transporte militar.

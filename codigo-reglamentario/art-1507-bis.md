@@ -1,0 +1,1 @@
+Artículo 1507 Bis. - El Consejo tendrá la obligación de acondicionar los espacios destinados para el acceso a las instalaciones de las personas con discapacidad, cumpliendo siempre con lo establecido en las Normas Oficiales Mexicanas vigentes.

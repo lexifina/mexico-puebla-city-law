@@ -1,0 +1,1 @@
+Artículo 290 Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 66 Al oscurecer, circular sin encender las luces blancas fijas del vehículo o no disminuir la intensidad de las mismas cuando se encuentre con otros vehículos circulando delante o en sentido contrario, en los términos que prevé este Capítulo.

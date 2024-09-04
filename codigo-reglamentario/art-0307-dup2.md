@@ -1,0 +1,1 @@
+Artículo 307 Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 51 En caso de utilizar como combustible gas L. P., carecer de la autorización correspondiente, no reunir las condiciones de seguridad requeridas o abastecerse en lugares no autorizados.

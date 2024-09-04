@@ -1,0 +1,2 @@
+Artículo 2167 Bis. - El Inspector Autoridad, vigilará especialmente, que el público no altere el orden, qu e no se crucen apuestas, que no se insulte o ataque, a los Comisionados Oficiales, Boxeadores y Luchadores y en general a toda persona que esté actuando en funciones de Box o Lucha Libre, consignando a las Autoridades competentes a quienes infrinjan estas disposiciones. El Inspector Autoridad dará instrucciones a la policía de servicio en el local donde se desarrolle la función, para el mejor cumplimiento de la misma.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

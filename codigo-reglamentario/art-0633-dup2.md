@@ -1,0 +1,5 @@
+Artículo 633 Quáter. - En materia de visitas de verificación e inspección deberá observarse lo siguiente:
+I. Proceden las visitas de verificación e inspección para comprobar el cumplimiento de las disposiciones legales previstas en el presente Capítul o y demás normatividad aplicable;
+II. Las visitas de verificación e inspección podrán efectuarse las veinticuatro horas del día, esto es, de las 00:00 horas a las 24:000 horas;
+III. La Unidad de Normatividad y Regulación Comercial podrá habilitar días p ara realizar diligencias y actuaciones relacionadas con las visitas de verificación e inspección los días que estén funcionando los establecimientos o realizándose las actividades reguladas a verificar;
+IV. Las personas que impidan las disposiciones previ stas en el presente Capítulo, se harán acreedoras a las sanciones aplicables; y V. Las personas servidoras públicas que intervengan para entorpecer cualquier procedimiento de verificación e inspección serán sujetos de responsabilidad en términos de la normatividad en la materia.

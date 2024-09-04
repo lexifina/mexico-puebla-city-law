@@ -1,0 +1,2 @@
+Artículo 284 Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 131 Establecer estaciones, terminales, bases o sitios, sin el dictamen favorable previo de la Dirección General de Seguridad Pública y Vialidad.
+Artículos 266 y 330 fracciones II y III Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 132 Utilizar las bases y sitios para hacer reparaciones o adecuaciones a los vehículos, si los lugares señalados se encuentran en la vía pública.

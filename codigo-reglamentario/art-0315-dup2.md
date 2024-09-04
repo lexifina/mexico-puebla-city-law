@@ -1,0 +1,1 @@
+Artículo 315 Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 67 Tratándose de vehículos particulares, que presten servicios de transporte público sin estar debidamente autorizados para ello.

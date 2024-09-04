@@ -1,0 +1,2 @@
+Artículo 349 fracción IV Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 135 Resistencia a serinfraccionado. Artículo 334 Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 136 Causar daños o lesiones a terceros con motivo de la fuga.
+Artículos 290 y 334 Multa del equivalente al valor diario de 30 a 40 unidades de medida y actualización 137 Estacionarse en los carriles exclusivos para transporte colectivo de pasajeros.

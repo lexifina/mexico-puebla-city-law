@@ -1,0 +1,1 @@
+Artículo 313 fracción II Multa del equivalente al valor diario de 12 a 20 unidades de me dida y actualización 62 Hacer uso innecesario, ofensivo o en lugares prohibidos, de bocinas o claxon, escapes, ruidos efectuados por revolucionar el motor o cualquier otro mecanismo sonoro.

@@ -1,0 +1,1 @@
+Artículo 311 Multa del equivalente al valor di ario de 8 a 12unidades de medida y actualización 56 Entrada o salida de vehículos en lugares distintos a los señalados en las vías de acceso controladas (estadios, almacenes, centros comerciales, auditorios y otros lugares análogos).

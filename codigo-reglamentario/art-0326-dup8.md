@@ -1,0 +1,3 @@
+Artículo 326 fracción XIV Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 108 Carecer de autorización especial, los camiones cuya carga exceda del pes o y dimensiones que fijen como máximo las disposiciones conducentes.
+Artículos 282 y 283 Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 109 Transportar animales, bultos u otros objetos que dificulten la prestación del servicio.
+Artículos 265 fracción VI y 299fracción II Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 110 Abastecer de combustible con pasajeros a bordo.

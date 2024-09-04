@@ -1,0 +1,2 @@
+Artículo 639 Bis. - Las disposiciones del presente Capítulo tienen por objeto implementar el cerco sanitario municipa l tendiente a regular la apertura, funcionamiento y operaciones de los negocios dedicados a la venta de productos cárnicos y/o subproductos y aves muertas para consumo humano, así como su transporte, conforme a las atribuciones que corresponden en la mater ia al Ayuntamiento del Municipio de Puebla.
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)

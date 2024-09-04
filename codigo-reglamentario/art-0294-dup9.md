@@ -1,0 +1,2 @@
+Artículo 294 fracción VIII Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 41 Llevar a su izquierda o entre sus manos alguna persona, bulto o permitir alguna intromisión sobre el control de dirección.
+Artículo 294fracció n XI Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización Multa de 8 a 12 días 42 Permitir que los menores de edad viajen sin utilizar el cinturón o la silla de seguridad.

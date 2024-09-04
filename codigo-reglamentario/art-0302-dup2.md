@@ -1,0 +1,1 @@
+Artículo 302 Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 34 No disminuir la velocidad a 30 Km por hora en las calles del Centro Histórico, calles locales, zonas escolares, de hospitales, parques, centros comerciales, de espectáculos y demás centros de reunión.

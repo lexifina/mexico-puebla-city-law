@@ -1,0 +1,2 @@
+Artículo 323 Quinquies Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 150 (REFORMA P.O. 30 DE DICIEMBRE DE 2022)
+Por ocupar espacios del Estacionamiento Rotativo con vehículos o remolques sin placas de circulación o teniéndolas, es tén remachadas, pegadas, soldadas o dentro del vehículo. Así como con permisos para circular sin placa expedidos por cualquier entidad federativa.

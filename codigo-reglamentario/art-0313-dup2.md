@@ -1,0 +1,1 @@
+Artículo 313 fracciones I y II Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 58 Cruzar o entrar a las vías públicas o salir de ellas sin respetar los derechos de preferencia y sin detener la marcha o disminuir la velocidad a 20 Km por hora en las intersecciones, según corresponda.

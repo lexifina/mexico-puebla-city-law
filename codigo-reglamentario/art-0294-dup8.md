@@ -1,0 +1,1 @@
+Artículo 294 fracción VII Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 40 Conducir vehículos sin los lente s, aparatos auditivos o prótesis anotados en la licencia.

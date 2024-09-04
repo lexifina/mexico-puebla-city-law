@@ -1,0 +1,1 @@
+Artículo 305 Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 49 No hacer el conductor las señales reglamentarias y en forma opor tuna, al detener o disminuir la velocidad o al dar vuelta a la derecha o a la Izquierda.

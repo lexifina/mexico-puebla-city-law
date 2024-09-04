@@ -1,0 +1,2 @@
+Artículo 278 fracción II Multa del equivalente al valor diario de 2 a 4 unidades de medida y actualización 10 Llevar sobre las placas o anexos a las mismas, distintivos, objetos u otras placas con rótulos e inscripciones de cualquier índole;
+micas o reflejantes que oculten, velen o impidan ver con claridad, parcial o totalmente, sus letras o números; llevar placas que no sean las de diseño oficial, o que las placas oficiales estén remachadas o soldadas a la carrocería del vehículo.

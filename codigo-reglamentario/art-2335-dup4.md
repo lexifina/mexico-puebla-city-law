@@ -1,0 +1,4 @@
+Artículo 2335 Duodecies. El Premio se otorgará en dos categorías:
+I. Premio al Mérito Cultural. El cual será otorgado aquellas personas, originarias o radicadas en el municipio de Puebla, que en él hayan desarrollado su trabajo por más de cinco años anteriores a su postulación, y que se hayan destacado en la creación artística o en la promoción y fomento de la cultura.
+II. Premio a la Gestión Comunitaria. El cual será otorgado a las personas físicas o morales, asociaciones o colectivos radicados en el Municipio de Puebla, que en él hayan desarrollado su trabajo por más de cinco años anteriores a su postulación; y que, a través de sus producciones, proyectos, trabajos de investigación o de divulgación hayan contribuido a mejorar la gestión cultural y el trabajo comunitario en una o varias comunidades del Municipio.
+(ADICIONADO, P.O. 29 DE ABRIL DE 2020)

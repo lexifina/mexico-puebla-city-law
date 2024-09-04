@@ -1,0 +1,5 @@
+Artículo 334 Bis. - Si como resultado de un accidente de tránsito sólo se ocasionan daños a bienes, en cuanto a la reparación de los mismos se procederá de la siguiente forma:
+I. De no existir acuerdo entre las partes afectadas, los implicados serán puestos a disposición de la autoridad competente para garantizar la reparación del daño y en su caso, determinar la responsabilidad penal;
+II. De existir acu erdo entre los involucrados, el policía preventivo, procurará que dicho acuerdo sea debidamente suscrito por ambas partes y conste por escrito; y III. De tratarse de bienes del Municipio se dará aviso a las autoridades correspondientes para que procedan de conformidad con las disposiciones legales aplicables.
+.
+Cuando alguna de las personas conductoras se encuentre en estado de ebriedad o bajo el influjo de sustancias psicoactivas, enervantes, psicotrópicos o cualquier otra sustancia que produzcan efect os similares, no se aplicará lo dispuesto en la fracción II, remitiéndose a los involucrados ante la autoridad competente.

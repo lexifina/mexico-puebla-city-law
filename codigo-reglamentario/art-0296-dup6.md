@@ -1,0 +1,1 @@
+Artículo 296 fracción VII Multa del equivalente al valor diario de 2 a 4 unidades de medida y actualización 123 Circular en vehículos destinados al transporte de materias y sustancias inflamables, explosivas, corrosivas, radiactivas, biológicas, tóxicas o peligro sas, sin cumplir las restricciones y precauciones ordenadas.

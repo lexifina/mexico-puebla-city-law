@@ -1,0 +1,1 @@
+Artículo 309 Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 54 Circular en reversa sin precaución, interfiriendo con el tránsito normal, por una distancia mayor de 10 metros o en intersecciones.

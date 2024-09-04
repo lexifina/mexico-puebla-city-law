@@ -1,0 +1,2 @@
+Artículo 719 Bis. Se Deroga.
+(REFORMADO, P.O. 27 DE OCTUBRE DE 2017)

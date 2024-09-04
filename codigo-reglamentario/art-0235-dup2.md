@@ -1,0 +1,2 @@
+Artículo 235 Quáter .- Corresponde a las y los defensores designados asistir a las personas infractoras desde el momento de su presentación ante la Jueza o Juez de Justicia Cívica por los elementos de seguridad pública o desde su presentación en función del citatorio respectivo, independientemente del tipo de infracción de que se trate, hasta el término del procedimiento administrativo que se instaure en su contra, ya sea por ejecución de sentencia o por ser puesto inmediatamente en libertad.
+(ADICIONADO, P.O. 05 DE JULIO DE 2021)

@@ -1,0 +1,2 @@
+Artículo 2217 Bis. - Cuando por alguna causa determinada un representante no pueda firmar personalmente el contrato para la actuación de un boxeador o luchador, podrá autorizar a éste por escrito, a firmar el contrato respectivo y a cobrar sus emolumentos, quedando sujeto a convenio particular entre ambos, lo referente a porcentaje, que percibirá el representante en estos casos.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

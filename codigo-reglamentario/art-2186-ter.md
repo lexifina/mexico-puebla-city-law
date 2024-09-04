@@ -1,0 +1,2 @@
+Artículo 2186 Ter. - Cuando el Comisionado en turno considere que el representante del boxeador, luchador o sus auxiliares son también responsables de que la pelea no haya sido honrada , limpia o ajustada al presente Capítulo, pondrá los hechos en conocimiento de la Comisión, para que ésta, previa la investigación procedente, imponga la sanción que corresponda.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

@@ -1,0 +1,1 @@
+artículo 276 fracción I de este Capítulo, aplicándose la sanción correspondiente más alta contemplada en el tabulador de infracciones, sin perjuicio de las medidas de seguridad y demás sanciones que correspondan conforme a otros ordenamientos.

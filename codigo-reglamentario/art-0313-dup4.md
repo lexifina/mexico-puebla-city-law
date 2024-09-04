@@ -1,0 +1,2 @@
+Artículo 313 fracción VII Multa del equivalente al valor diario de 80 a 100 unidades de medid a y actualización 145 Ofender, in sultar o denigrar a los Agentes de Tránsi to y/o Personas Supervisoras de Movilidad Artículo 294 fracción XVI Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 146 (REFORMA P.O. 30 DE DICIEMBRE DE 2022)
+Exceder las horas máximas permitidas en uso de los espacios de estacionamiento rotativo.

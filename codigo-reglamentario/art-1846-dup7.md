@@ -1,0 +1,1 @@
+Artículo 1846 Fracción VII 9. Por cada animal que se utilice para fines de propaganda política y comercial, así como en protestas, marchas, plantones o en cualquier otro acto análogo alterando su constitución física o maltrato.

@@ -1,0 +1,1 @@
+Artículo 297 fracciones I, II,III, IV, V y VI Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 124 Circular, estacionarse o realizar maniobras de carga o descarga fuera de las zonas y horas permitidas.

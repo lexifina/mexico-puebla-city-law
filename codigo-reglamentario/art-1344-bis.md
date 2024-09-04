@@ -1,0 +1,3 @@
+Artículo 1344 Bis. - Fuera de los procesos electorales, queda prohibido pintar, colocar, fijar, instalar, distribuir, ubi car o modificar anuncios fijos, semifijos, móviles, auditivos y/o visuales en los que se haga la promoción personalizada referida en el artículo 1254 fracciones IV y V.
+(ADICIONADO, P.O. 28 DE AGOSTO DE 2023)
+El anunciante, propietario, poseedor, respons ables solidarios o quien infrinja lo dispuesto por este artículo será requerido conforme a lo establecido en el párrafo tercero del artículo 1346 del presente Código; ante la falta de cumplimiento será sancionado con una multa del equivalente al valor diar io de 200 a 3,000 unidades de medida y actualización al momento de determinarla.

@@ -1,0 +1,1 @@
+Artículo 296 fracción I Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 118 Transportar vísceras, líquidos, suspensiones y gases en vehículos no acondicionados para ello.

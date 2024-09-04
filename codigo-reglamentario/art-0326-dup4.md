@@ -1,0 +1,2 @@
+Artículo 326 fracción IV Multa del equivalente al valor diario de 8 a 12 unidades de medida y actualización 100 Estacionarse sobre un puente o paso a desnivel, en una curva o cima, o dentro de una distancia cercana a ellos, no mayor de 20metros.
+Artículos 323 fracción IV y 326fracción V Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 101 Estacionarse en los lugares en donde hay señales oficiales de no estacionarse.

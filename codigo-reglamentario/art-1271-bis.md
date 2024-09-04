@@ -1,0 +1,1 @@
+Artículo 1271 Bis.- El Ayuntamiento, a través de la Agencia, determinará el lugar específico para la colocación de los anuncios electrónicos de propaganda, previo Dictamen de Protección Civil, y sólo dentro de las Zonas Publicitarias.

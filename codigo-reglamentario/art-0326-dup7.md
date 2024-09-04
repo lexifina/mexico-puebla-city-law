@@ -1,0 +1,1 @@
+Artículo 326 fracción XII Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 107 Estacionarse a menos de 50 metros del lugar donde estén operando los carros de bomberos.

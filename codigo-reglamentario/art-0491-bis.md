@@ -1,0 +1,2 @@
+Artículo 491 Bis. - Independientemente de las sanciones aplicables, la Unidad Operativa Municipal de Prot ección Civil, clausurará o desmontará de oficio las instalaciones de cualquier clase en las que se realicen espectáculos, cuando pongan en peligro la integridad física de las personas o su patrimonio económico, para lo cual se levantará acta circunstanciada en presencia de dos testigos, en la que se asentarán los hechos que dieron lugar a la medida de seguridad aplicada.
+(REFORMADO EL PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2008)

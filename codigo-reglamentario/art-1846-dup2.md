@@ -1,0 +1,2 @@
+Artículo 1846 Fracción I y II (REFORMADO, P.O. 15 JUNIO 2017)
+4. Por celebrar espectáculos que causen maltrato a animales en la vía pública o todo lugar de estancia o cautiverio como ferias, zoológicos, parques de diversiones, criaderos, centros de adiestramiento, tiendas de animales de compañía, clínicas veterinarias, pensiones públicas o privadas, establos, caballerizas, acuarios, bioparques y hospitales; que no cuenten con el permiso de la autoridad competente.

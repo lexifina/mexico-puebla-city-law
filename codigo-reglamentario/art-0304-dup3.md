@@ -1,0 +1,1 @@
+Artículo 304 fracción III Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 48 En el caso de quienes se pretendan incorporar a una rotonda o glorieta, negar la preferencia de paso a quienes ya transitan en ella.

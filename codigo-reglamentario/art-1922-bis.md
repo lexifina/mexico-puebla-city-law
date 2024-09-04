@@ -1,0 +1,2 @@
+Artículo 1922 Bis. - Procede inhabilitar para poseer, manejar, atender, cuidar o comercializar animales en el Municipio de Puebla, a los propietarios de animales que sean víctimas evidentes de actos de crueldad o que hayan agredido más de dos veces y no hayan dado cumplimiento a la obligación de educ arlos y adiestrarlos para asegurar su buen comportamiento, según lo dispuesto en este Capítulo y demás ordenamientos aplicables.
+(REFORMADO, P.O. 20 DE ABRIL DE 2012)

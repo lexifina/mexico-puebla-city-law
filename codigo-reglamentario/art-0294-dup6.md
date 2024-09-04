@@ -1,0 +1,1 @@
+Artículo 294 fracciones III y X Multa del equivalente al valor diario de 4 a 8 unidades de medida y actualización 37 Adelantar a otro vehículo que circule a la velocidad máxima permitida, en curvas, bocacalles y cruceros.

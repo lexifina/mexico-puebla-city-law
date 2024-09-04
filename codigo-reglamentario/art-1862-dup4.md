@@ -1,0 +1,1 @@
+Artículo 1862 Fracción VI 6. A las personas físicas o morales que se dediquen a la cría, venta o adiestramiento de animales, que no otorguen al momento de la venta el manual de cuidado, albergue y dieta del animal adquirido.

@@ -1,0 +1,2 @@
+Artículo 2132 Bis.- Quedan obligadas las Empresas a presentar ante la Comisión, la autorización de salida de los Boxeadores programados, la cual deberá estar debidamente requisitada por la Comisión o Consejo de Box o Lucha Libre de origen, así mismo las Empresas presentarán junto al programa correspondiente, las licencias de los elementos que tomen parte en el mismo.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

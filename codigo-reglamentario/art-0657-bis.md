@@ -1,0 +1,2 @@
+Artículo 657 Bis. Se Deroga.
+DE LAS AUTORIDADES Y FACULTADES

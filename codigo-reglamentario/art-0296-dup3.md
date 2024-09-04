@@ -1,0 +1,1 @@
+Artículo 296 fracciones II y III Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 119 Transportar alimentos, animales o desechos, sin el permiso correspondiente, o sin las precauciones necesarias.

@@ -1,0 +1,2 @@
+Artículo 1424 Bis.- DEROGADO.
+(P.O. 16 DE DICIEMBRE DE 2016)

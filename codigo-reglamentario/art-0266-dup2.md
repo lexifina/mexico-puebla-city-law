@@ -1,0 +1,1 @@
+Artículo 266 Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 133 Estacionar los vehículos correspondientes fuera de las zonas señaladas o bloqueando o dificultando la visibilidad de semáforos o señales de tránsito, si se trata de bases o sitios ubicados en la vía pública.

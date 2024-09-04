@@ -1,0 +1,3 @@
+Artículo 232 Quinquies.- Se deroga.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2008) (REFORMADO, P.O. 05 DE JULIO
+DE 2021)

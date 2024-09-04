@@ -1,0 +1,1 @@
+Artículo 276 fracción III Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización 68 Usar propaganda luminosa, dispositivos reflejantes o faros traseros de luz blanca que causen deslumbramiento a los demás conductores.

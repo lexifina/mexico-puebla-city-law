@@ -1,0 +1,1 @@
+Artículo 484 Bis.- La Coordinación de Fiscalización de Espectáculos Públicos, remitirá a la Agencia de Protección al Ambiente y Desarrollo Sustentable información sobre los espectáculos públicos autorizados en un término que no excederá de dos días previos a la presentación de los mismos.

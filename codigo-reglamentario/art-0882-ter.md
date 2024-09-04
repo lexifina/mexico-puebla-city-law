@@ -1,0 +1,2 @@
+Artículo 882 Ter. En caso de que en la zona urbana en que se ubique el fraccionamiento tenga condiciones topográ ficas difíciles de superar por su alto costo de construcción, la autoridad competente, el organismo operador de agua, podrán eximir al fraccionador de su obligación de establecer una conexión a la red principal de alcantarillado sanitario, y en su lugar au torizar sistemas descentralizados de tratamiento de aguas residuales sanitarias.
+Asimismo, se deberán de observar lo establecido en las consideraciones previstas en el artículo 882 del presente Código.

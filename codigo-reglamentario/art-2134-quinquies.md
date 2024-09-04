@@ -1,0 +1,2 @@
+Artículo 2134 Quinquies. - Cuando por causa de fuerza mayor debidamente comprobada, se suspenda el espectáculo que ya se había iniciado, las Empresas no podrán disponer de! importe de las entradas hasta que la Comisión y el Departamento de Espectáculos Municipal, resuelvan lo procedente para lo cual tomará en cuenta todas las circunstancias que hubiesen mediado para la suspensión, en el concepto de que su resolución deberá dictarla dentro de las 48 horas hábiles siguientes a la suspensión del espectáculo.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)

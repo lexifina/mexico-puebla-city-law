@@ -1,0 +1,1 @@
+Artículo 290 Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización Multa del equivalente al valor diario de 20 a 30 unidades de medida y actualización Multa del equivalente al valor diario de 30 a 40 unidades de medida y actualización 65 No solicitar auxilio para los lesionados en caso de provocar o sufrir un accidente de tránsito.

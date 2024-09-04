@@ -1,0 +1,1 @@
+Artículo 265 fracciones I y II Multa del equivalente al valor diario de 12 a 20 unidades de medida y actualización 112 Hacer paradas en lugares distintos a los señalados para tal efecto, así como realizar las maniobras de ascenso o descenso de pasajeros, en carril distinto al de extrema derecha.

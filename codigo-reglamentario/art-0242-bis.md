@@ -1,0 +1,3 @@
+Artículo 242 Bis - El procedimiento señalado en el artículo anterior, se efectuará en presencia de la o el adolescente bajo los principios del Sistema de Justicia Penal Acusatorio, a quien se le amonestará para que no reincida, facultándose a la Jueza o Juez de Justicia Cívica, en términos de la fracción I del artículo 229 de este Código proceda su incorporación a la comisión, dependencia, institución, órgano o cualquier otra que para tal efecto se establezca, a fin de lograr su reinserción familiar y desarrollo social.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008) (REFORMADO, P.O. 05 DE JULIO
+DE 2021)

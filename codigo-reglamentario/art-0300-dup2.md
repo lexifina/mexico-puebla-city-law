@@ -1,0 +1,1 @@
+Artículo 300 Multa de l equivalente al valor diario de 12 a 20 unidades de medida y actualización 32 Conducir en sentido contrario al señalado o por los carriles centrales o izquierdos sin que sea necesario, o por encima de las líneas divisorias.

@@ -1,0 +1,2 @@
+Artículo 1741 Septies.- Se deroga. (P.O. 30 DE DICIEMBRE DE 2022)
+(ARTÍCULO ADICIONADO, P.O. 24 DE MARZO DE 2014)

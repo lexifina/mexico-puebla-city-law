@@ -1,0 +1,1 @@
+Artículo 306 fracciones I,IIy III Multa del equivalente al valor diario de 2 a 4 unidades de medida y actualización 50 Detener la marcha del vehículo sin pegarse a la banqueta de estacionamiento, o no hacer las señales necesarias para ello.

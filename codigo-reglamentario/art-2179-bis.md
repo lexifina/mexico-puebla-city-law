@@ -1,0 +1,2 @@
+Artículo 2179 Bis.- Es obligación para los boxeadores y los luchadores, inclusive los emergentes, presentarse en el local en que vaya a celebrarse la función para la que fueron contratados, con una hora de anticipación cuando menos a la fijada para que dé comienzo el espectáculo, debiendo presentarse ante el Director de Encuentros en el caso de los boxeadores para que registre su asistencia, estando prohibido abandonar el local antes de que su compromiso haya sido totalmente cumplido.
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
