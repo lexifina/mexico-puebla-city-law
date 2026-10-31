@@ -1,0 +1,11 @@
+{
+  "path": "mx-pue-puebla",
+  "code": "MX-PUE-PUEBLA",
+  "name": "Puebla (city)",
+  "level": "municipality",
+  "parent": "mx-pue",
+  "repo": "https://github.com/lexifina/mexico-puebla-city-law",
+  "build": "built: reglamentos municipales vigentes of Puebla, current text only (2), from https://gobiernoabierto.pueblacapital.gob.mx/marco-normativo-del-h-ayuntamiento-de-puebla",
+  "language": "es",
+  "sources": 1
+}

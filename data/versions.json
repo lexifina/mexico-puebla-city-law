@@ -1,0 +1,33 @@
+{
+ "country": "MX-PUE-PUEBLA",
+ "acts": [
+  {
+   "slug": "codigo-reglamentario",
+   "short": "Código Reglamentario para el Municipio de Puebla (COREMUN)",
+   "title": "Código Reglamentario para el Municipio de Puebla (COREMUN)",
+   "url": "https://gobiernoabierto.pueblacapital.gob.mx/marco-normativo-del-h-ayuntamiento-de-puebla",
+   "versions": [
+    {
+     "from": "2024-09-04",
+     "units": 2768,
+     "source_url": "https://gobiernoabierto.pueblacapital.gob.mx/transparencia_file/ayto/77.fracc01/77_1_sa_coremun.pdf",
+     "sha256": "5361d975a929c625696bc0b430c4509223b0c6abd8a194c078f941f43846e890"
+    }
+   ]
+  },
+  {
+   "slug": "codigo-de-etica-del-h-ayuntamiento",
+   "short": "Código de Ética del H. Ayuntamiento del Municipio de Puebla",
+   "title": "Código de Ética del H. Ayuntamiento del Municipio de Puebla",
+   "url": "https://gobiernoabierto.pueblacapital.gob.mx/marco-normativo-del-h-ayuntamiento-de-puebla",
+   "versions": [
+    {
+     "from": "2021-12-07",
+     "units": 18,
+     "source_url": "https://gobiernoabierto.pueblacapital.gob.mx/transparencia_file/sindicatura/77_fracc01/77_01_codigoetica.pdf",
+     "sha256": "bbc09632752909dfe8e65cff04394e77405ec852ef9791cb6bc26eed05e0fbf9"
+    }
+   ]
+  }
+ ]
+}

@@ -1,0 +1,14 @@
+The texts of law in this repository are reglamentos and other general provisions of the Municipio de Puebla
+(Puebla, Mexico), taken from Gobierno Abierto, H. Ayuntamiento de Puebla (gobiernoabierto.pueblacapital.gob.mx), "Normatividad más consultada del H. Ayuntamiento de Puebla", https://gobiernoabierto.pueblacapital.gob.mx/marco-normativo-del-h-ayuntamiento-de-puebla (consulted 2026-10-31).
+
+Copyright: they are not protected by copyright in Mexico. Ley Federal del Derecho de Autor, art. 14: "No son objeto de la protección como derecho de autor a que se refiere esta Ley: [...] VIII. Los textos legislativos, reglamentarios, administrativos o judiciales, así como sus traducciones oficiales. En caso de ser publicados, deberán apegarse al texto oficial y no conferirán derecho exclusivo de edición".
+They are reproduced here following the official text.
+
+Attribution: Fuente: H. Ayuntamiento del Municipio de Puebla, https://gobiernoabierto.pueblacapital.gob.mx/marco-normativo-del-h-ayuntamiento-de-puebla.
+
+Changes made by Lexifina: each text was split into one Markdown file per article, one paragraph per line, with spacing
+normalised; the wording was not changed. The municipality does not endorse this repository. This repository is not an
+official publication; the binding text is the one published in the Periódico Oficial del Estado de Puebla.
+
+Lexifina's own contributions (the arrangement of the history, the commit messages, the tables and the tools) are
+dedicated to the public domain under CC0 1.0 Universal: https://creativecommons.org/publicdomain/zero/1.0/
